@@ -1,4 +1,6 @@
 
-https://mo-renike.github.io/mo-renike-CV/
+https://richardsochima.github.io/Richard-Aroh-CV/
+
+
 
 
